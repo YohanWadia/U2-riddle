@@ -1,8 +1,11 @@
 # U2-riddle
 
 You can find this brainteasers at may be....
+<br>
 https://www.mycoted.com/Crossing_the_bridge
+<br>
 http://jaced.com/2005/05/31/the-u2-riddle
+<br>
 https://mental-workout.livejournal.com/23030.html
 
 
